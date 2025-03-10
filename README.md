@@ -19,7 +19,7 @@
   
   💬 Ask me about **Algorithmic Trading**, **Financial Modeling**, and **Data Analysis**
   
-  📫 You can reach me at **adilhabibi728@gmail.com**
+  📫 You can reach me at **laabidate.akram.encg@uhp.ac.ma**
   
   <h3>Languages and Tools:</h3>
   
